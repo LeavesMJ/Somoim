@@ -1,3 +1,0 @@
-# Somoim
-green-project
-asdasd
